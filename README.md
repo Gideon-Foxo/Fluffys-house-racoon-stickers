@@ -40,5 +40,5 @@ You can download the zip file [here](https://drive.google.com/open?id=14x_9GFrgU
 ![Image of Yaktocat](https://cdn.discordapp.com/attachments/596012660080902170/596012887458316328/512_38.png)
 ![Image of Yaktocat](https://cdn.discordapp.com/attachments/596012660080902170/596012890830536712/512_39.png)
 ![Image of Yaktocat](https://cdn.discordapp.com/attachments/596012660080902170/596012894815125515/512.png)
-###### [Back to the top](https://gideon-grey.github.io/Fluffys-house-stickers/)
+###### [Back to the top](https://gideon-grey.github.io/Fluffys-house-racoon-stickers/)
 ###### [Back to the main page](https://gideon-grey.github.io/Fluffys-house/)
