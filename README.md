@@ -1,5 +1,5 @@
 ## Racoon stickers
-You can dowmload these stickers [here]() or download them down below.
+You can download the zip file [here](https://drive.google.com/open?id=14x_9GFrgUc0hBWtEJ0HJubcMtRhjlJal) or download the stickers down below.
 ![Image of Yaktocat](https://cdn.discordapp.com/attachments/596012660080902170/596012729156894730/512_1.png)
 ![Image of Yaktocat](https://cdn.discordapp.com/attachments/596012660080902170/596012731413430313/512_2.png)
 ![Image of Yaktocat](https://cdn.discordapp.com/attachments/596012660080902170/596012734110367745/512_3.png)
@@ -40,3 +40,5 @@ You can dowmload these stickers [here]() or download them down below.
 ![Image of Yaktocat](https://cdn.discordapp.com/attachments/596012660080902170/596012887458316328/512_38.png)
 ![Image of Yaktocat](https://cdn.discordapp.com/attachments/596012660080902170/596012890830536712/512_39.png)
 ![Image of Yaktocat](https://cdn.discordapp.com/attachments/596012660080902170/596012894815125515/512.png)
+###### [Back to the top](https://gideon-grey.github.io/Fluffys-house-stickers/)
+###### [Back to the main page](https://gideon-grey.github.io/Fluffys-house/)
